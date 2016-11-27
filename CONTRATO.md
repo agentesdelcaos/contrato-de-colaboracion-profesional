@@ -100,8 +100,6 @@ En ________________________ a ________________________ de _______
 
 
 
-________________________			_______________________________
-(artista)							(colaboradora)
-                        			Socia trabajadora de la cooperativa de trabajo asociado _______________________________
+________________________ (artista)			_______________________________ (colaboradora) Socia trabajadora de la cooperativa de trabajo asociado _______________________________
                         			
                         			
